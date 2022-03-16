@@ -4,5 +4,6 @@
 - 💞️ İşbirliği yapmak istiyorsanız ...
 - 📫 Bana nasıl ulaşırsınız?...
 
+![alt text](https://p4.wallpaperbetter.com/wallpaper/749/308/1001/anime-code-wallpaper-thumb.jpg)
 
 Discord: https://discord.gg/Nzd7jac3Xd
